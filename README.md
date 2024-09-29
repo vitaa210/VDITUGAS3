@@ -1,1 +1,6 @@
-# VDITUGAS3
+# VDITUGAS33 
+# 122450046_VITA
+#VISUALISASI BAIK
+![kuis lasso](https://github.com/user-attachments/assets/6ff99257-5fb0-41e2-b311-30441541f726)
+INI BARCODE
+VISU HSDGUDOQIHDJADA
